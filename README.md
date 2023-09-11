@@ -1,1 +1,1 @@
-# maksudnya-gini
+# sebuah catatan retorika orang it
